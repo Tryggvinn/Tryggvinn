@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tryggvi121
+- 👋 Hi, I’m @Tryggvinn
 - 👀 I'm fascinated by nerdy, childish, dreamy stuff!
 - 🌱 I’m currently working on my startup Kard
 - 💞️ I’m looking forward to be a key player in this world someday.
