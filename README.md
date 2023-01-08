@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tryggvi121
-- 👀 I’m interested in investing
-- 🌱 I’m currently learning science stuff
-- 💞️ I’m looking to collaborate on I dont now
+- 👀 I'm fascinated by nerdy, childish, dreamy stuff!
+- 🌱 I’m currently working on my startup Kard
+- 💞️ I’m looking forward to be a key player in this world someday.
 - 📫 You can reach me through tryggvipj3240@gmail.com
 
 <!---
